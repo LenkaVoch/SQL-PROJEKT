@@ -1,0 +1,12 @@
+
+
+# SQL PROJEKT
+
+## ZADÁNÍ
+
+## ANALÝZA
+
+## POSTUP
+
+## VÝSLEDKY
+
